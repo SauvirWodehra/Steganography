@@ -148,9 +148,9 @@ Contributions are welcome, especially those that address the current resolution 
 
 ## 👤 Author
 
-**[Adarsh Dubey]**
+**[Sauvir Wodehra]**
 
-* **Mail:** [adarshiiitkota@gmail.com]
-* **LinkedIn:** [https://www.linkedin.com/in/adarsh-dubey-313b1a227/]
+* **Mail:** [sauvirwodheras3136@gmail.com]
+* **LinkedIn:** [www.linkedin.com/in/sauvir-wodehra-032821257]
 
 ---
